@@ -1,1 +1,4 @@
 # AkanshaKukreti_00401222025_Assign5
+Akansha Kukreti
+00401222025
+IGDTUW
